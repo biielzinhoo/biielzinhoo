@@ -11,7 +11,8 @@
 
 0001127183552sp@al.educacao.sp.gov.br
 
-  ![](![image](https://github.com/biielzinhoo/biielzinhoo/assets/169489967/d6c0e6c0-f16e-404f-8750-99462172a5a7)
+  ![]()![image](https://github.com/biielzinhoo/biielzinhoo/assets/169489967/a0ac5932-9266-4a46-8ac6-3af8ab01c3bd)
+
 
   
 
